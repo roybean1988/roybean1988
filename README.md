@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @roybean1988
+- 👋 Hi,
 - 👀 I’m interested in PC games and landing an IT job after I finish school, my daughters future, my fiancees business ideas, 
 - 🌱 I’m currently learning COMM-2, CIT-93, HEALTH-1, HATTA YOGA, POLISCI-2 for Fall of 2022.
 - 💞️ I’m looking to collaborate on improving my skills in all aspects of the PC and IT world.
